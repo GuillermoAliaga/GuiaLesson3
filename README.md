@@ -1,1 +1,0 @@
-# GuiaLesson3
